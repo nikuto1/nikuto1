@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @nikuto1
+- 👀 I’m interested in programming, i'm just a beginner
